@@ -1,1 +1,1 @@
-# Amaizing-Portfolio
+# Amazing-Portfolio
